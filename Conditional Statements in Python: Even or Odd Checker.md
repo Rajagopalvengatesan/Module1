@@ -24,7 +24,8 @@ Name:RAJA GOPAL V
 Reg No:212223240134
 ```
 ## Output
-![image](https://github.com/user-attachments/assets/9ebcb6b5-9081-4e8b-ad2d-af173e51c11c)
+
+![17486810555376662276255916574025](https://github.com/user-attachments/assets/7aefb97f-e676-4f0b-bc17-4c463954dcb2)
 
 
 
